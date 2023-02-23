@@ -1,5 +1,5 @@
 <h2 align="center">
-    ──「 Hey Raftar you are my chutiya friend 」──
+    ──「 Hey Kishan chumtiye hehe 😁 」──
 </h2>
 
 <p align="center">
